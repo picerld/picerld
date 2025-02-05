@@ -1,15 +1,15 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Rafi Cahyadi
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Picer
 ====================================================================================================================================
 
 Perkenalkan guwe adalah
 -----------------------
 
-asjdbhasjdhbasjdhbajdbasjdhbsajdasbjdhsb
+su su su su
 
 *   🌍  I'm based in Bandung, Indonesia
-*   🖥️  See my portfolio at [porto](http://asdasdasd)
-*   ✉️  You can contact me at [asd](mailto:asd)
-*   🧠  I'm learning asdasdasd
+*   🖥️  See my portfolio at [porto]([http://asdasdasd](https://picerld-neo.vercel.app/))
+*   ✉️  You can contact me at [asd](mailto:raficahyadi1221@gmail.com)
+*   🧠  I'm learning everything's
 *   🤝  I'm open to collaborating on asdasdasdas
 *   ⚡  asdasdasdasdasdsad### Skills 
 <p align="left">
